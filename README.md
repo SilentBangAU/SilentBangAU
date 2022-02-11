@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SilentBangAU
+- 👀 I’m interested in beat saber
+- 🌱 I’m currently learning acc
+- 💞️ I’m looking to collaborate on ur mum
+- 📫 How to reach me discord
